@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @kiwi-jang
-- 👀 I’m interested in visual design, and girl..?
-- 🌱 I’m currently learning the military life
-- 💞️ I’m looking to collaborate on noting
 - 📫 How to reach me "wlgur64404@gmail.com"
 
 <!---
